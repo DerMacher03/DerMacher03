@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DerMacher03
+- 👀 I’m interested in Database / Clouds
+- 🌱 I’m currently learning Business and Information Systems Engineering
+- 💞️ I’m looking to collaborate everywhere
+- 📫 How to reach me dy-solutions@outlook.com
